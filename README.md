@@ -1,2 +1,0 @@
-# DorcykaX
-I dont know 
